@@ -1,2 +1,2 @@
 # Music
-Home Rercordings
+ A compilation of traditional folk songs
